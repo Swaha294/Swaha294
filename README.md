@@ -11,3 +11,5 @@ Here are some projects that I maintain or have contributed to:
 - [Swaha Sings](https://www.instagram.com/swa_laalaalaa/): My singing channel
 
 -----------
+
+Please feel free to reach out to me via [email](itsswahabhattacharya@gmail.com) or LinkedIn(https://www.linkedin.com/in/swaha294/)
