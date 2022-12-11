@@ -12,4 +12,4 @@ Here are some projects that I maintain or have contributed to:
 
 -----------
 
-Please feel free to reach out to me via [email](itsswahabhattacharya@gmail.com) or LinkedIn(https://www.linkedin.com/in/swaha294/)
+Please feel free to reach out to me via [email](itsswahabhattacharya@gmail.com) or [LinkedIn](https://www.linkedin.com/in/swaha294/)
