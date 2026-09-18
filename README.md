@@ -1,4 +1,4 @@
-Hi, I'm Swaha (she/her). I am a senior at Smith College double majoring in Mathematics & Statistical and Data Sciences. 
+Hi, I'm Swaha (she/her). I am a Masters student at the Yale Graduate School of Arts Sciences, pursuing an MS in Statistics and Data Science.
 
 -----------
 
